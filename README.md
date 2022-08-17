@@ -1,4 +1,4 @@
-'Part Time role' - available: Very keen to speak with a uniswap expert. Most likely to be a paid engagement with FIAT and crypto
+'Part Time role' - available: Very keen to speak with a uniswap expert. Paid engagement with FIAT and/or crypto
 
 
 - 👋 Hi, I’m @4446495
